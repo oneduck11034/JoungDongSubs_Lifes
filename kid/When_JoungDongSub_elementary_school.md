@@ -8,6 +8,8 @@
 - 어머니가 인제남초등학교 앞 맨션에서 종이접기 학원을 한 적이 있다.
 - 초등학교 교사 선생님이 마지막으로 수첩을 선물 해주었는데 디자인이 예뻐서 서로 교환하려다가 혼남.(편지는 둘이 찢어서 교환했지만)
 
+> 정원덕 tried to "만년필 촌지" to 초등학교 교사 선생님, but he rejected that present. So I had a pen in the past(ALmost 5 yeas ago) 
+
 ### 차준영
 
 - 기독교형 미션 스쿨로 전학 감.
