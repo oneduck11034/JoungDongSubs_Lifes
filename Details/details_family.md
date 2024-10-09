@@ -1,4 +1,4 @@
-# Some details
+# Some details with My(JoungDongSub's) family
 
 - 정원덕의 앉은 자세
 - 조순자 금 목걸이, 박형균 금 목걸이
