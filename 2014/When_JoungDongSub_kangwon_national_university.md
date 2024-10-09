@@ -14,3 +14,5 @@
 
 ## 김필립
 과대로 과MT에 정동섭을 불러서 같이 놀았으며 정동섭은 "불러 주어서 고맙다고"했었다.
+
+## JoungDongSub prized some moneys almost $50 from 동양재단?(IDK) as global scholarship
